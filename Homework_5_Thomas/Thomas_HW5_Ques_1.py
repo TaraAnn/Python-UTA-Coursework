@@ -1,4 +1,4 @@
-# Tara Ann Thomas (UTA ID : 1001584535)
+# Tara Ann Thomas 
 
 # INSY5336 - HOMEWORK5
 
